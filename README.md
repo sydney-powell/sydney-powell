@@ -26,4 +26,4 @@ My goal is to pursue a career in finance, with a focus on real estate or corpora
 - Applying programming to real-world business problems  
 
 ## Contact
-- Email: Sydneyp577@icloud.com
+- Email: sfpowell@usf.edu
